@@ -1,3 +1,3 @@
-<img src="https://imagetourl.cloud/5fc9of3n.png" width="100" />
+<img src="https://imagetourl.cloud/p5dogqng.jpg" width="300" height="200"/>
 
 ``nothing to see here, go back to my main acc :P``
