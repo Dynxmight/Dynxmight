@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=Dynxmight&color=b4b46c) :trollface:
+![](https://komarev.com/ghpvc/?username=Dynxmight&color=b4b46c)
 
 ![](https://imagetourl.cloud/nb0dafw0.jpg)
 
