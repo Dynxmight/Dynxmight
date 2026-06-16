@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=Dynxmight&color=b4b46c)
+![alt](https://img.shields.io/badge/souls-92740-b4b46c)
 
 ![](https://imagetourl.cloud/nb0dafw0.jpg)
 
