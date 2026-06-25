@@ -3,8 +3,9 @@ $$\color{#ABADAC}{\text{.
 　　　　　　
 .⠀ °}}$$
 
+![](https://cdn.phototourl.com/free/2026-06-25-40c63dbb-726a-4b21-8b6f-b204732229d8.jpg)
 
-$$\color{#90392B}{\text{ ۟ ིྀ　　ᛝ　　ꕀ ⌢⌢ ⟡}}$$
+$$\color{#00394D}{\text{ ۟ ིྀ　　ᛝ　　ꕀ ⌢⌢ ⟡}}$$
 $$\color{#055774}{\text{་ ♡　　yoveski   ݂۫ 𓏼 ๋ ࣭ ⭑}}$$
 $$\color{#367B8E}{\text{‿‿  ⋮ she/her ⟡}}$$
 $$\color{#97BCC3}{\text{ꕀ ⸝⸝   minor ‿◞   ྀི}}$$
