@@ -1,9 +1,7 @@
-$$\color{#ABADAC}{\text{,　　　　　　.
-　　　　　　　　　　　　　.
+$$\color{#ABADAC}{\text{.
 　　　　　　*⠀　　⠀  　　　　　⠀✦⠀　
-　　　　　　*
-.⠀ 　　　　　　　　　　.　　　　　　　
-　　　　　✦}}$$
+　　　　　　
+.⠀ °}}$$
 
 
 $$\color{#90392B}{\text{ ۟ ིྀ　　ᛝ　　ꕀ ⌢⌢ ⟡}}$$
@@ -14,13 +12,15 @@ $$\color{#ABADAC}{\text{✦•┈๑⋅⋯ ⋯⋅๑┈•✦}}$$
 
 ![](https://imagetourl.cloud/3b0cnz2b.png)
 
+$$\color{#919FA0}{\text{📌 don't check profiles sometimes...❗️}}$$
+
 <p align="center"><a href="https://yoveski.atabook.org" target="_blank"><img src="https://www.image2url.com/r2/default/images/1782403778707-bc18a8f9-69e6-442c-a50b-9b7e9db3ebe1.png" width="200"></a></p>
 
 $$\color{#BF3F40}{\text{✦•┈๑⋅⋯ ⋯⋅๑┈•✦}}$$
 
 $$\color{#ABADAC}{\text{,　　　　　　.
-　　　　　　　　　　　　　.
-　　　　　　*⠀　　⠀  　　　　　⠀✦⠀　
+　　　　　　　　　　　　　°
+　　　　　　·⠀　　⠀  　　　　　⠀✦⠀　
 　　　　　　*
 .⠀ 　　　　　　　　　　.　　　　　　　　.
 　　　　　✦}}$$
