@@ -1,7 +1,7 @@
-<p align="center">⋆⁺₊⋆ ━━━━⊱༒︎ • ༒︎⊰━━━━ ⋆⁺₊⋆
+<p align="center"><a href="https://yoveski.atabook.org">୨ৎ atabook</a> 
 
-![](https://imagetourl.cloud/awn8j6qn.jpg)
+<p align="center">✦•┈๑⋅⋯ ⋯⋅๑┈•✦
+  
+![](https://imagetourl.cloud/qi08juyl.png)
 
-`have a good day all, i love u /pos.`
-
-<p align="center">⋆⁺₊⋆ ━━━━⊱༒︎ • ༒︎⊰━━━━ ⋆⁺₊⋆
+<p align="center">✦•┈๑⋅⋯ ⋯⋅๑┈•✦
