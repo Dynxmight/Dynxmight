@@ -1,1 +1,1 @@
-![hippo](https://cdn.phototourl.com/member/2026-06-26-354dbf03-2489-47f6-8cfa-c9c7753a08af.gif)
+![hippo](https://cdn.phototourl.com/member/2026-06-26-8ebf85e9-02b4-4564-84eb-86eeec43c41f.gif)
